@@ -1,1 +1,1 @@
-![](Screenshot_20220318_031145.png.png)
+![](Screenshot_20220318_031145.png)
